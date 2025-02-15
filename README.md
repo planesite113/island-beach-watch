@@ -6,6 +6,8 @@
 ![image](https://github.com/user-attachments/assets/3fb04a5a-0728-410e-bc43-f6a286f1fc4c)
 
 https://images.app.goo.gl/kpvjuGkrHmtuuPsq9
+https://www.britannica.com/topic/flag-of-Alaska
+>flag of AlaskaU.S. state flag consisting of a dark blue field (background) showing Polaris (the North Star) and the Ursa Major (Great Bear) constellation in gold or yellow.
 ***
 ![image](https://github.com/user-attachments/assets/bbe1a281-d7f7-4719-b2d0-e7e6cb615e12)
 ***
