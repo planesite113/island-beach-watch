@@ -1,8 +1,18 @@
 # island beach watch
+Fewer words - less distraction.
 
 ## flight tracker observations
+The island beach state park webcam became a focus from mid december's major news networks reports of "drones". There is a great community there and virtually that i summmize has real dedication and spirit on this question of ET as it appears before our eyes. Of course, our world is not so pure. It is my nature to always hold out hope for the day that it is.
+
+A potentially important observation is the focus of this repository. Could we be witnessing the revelation of ET in the here and now? Approaching the unique geographical location of Island Beach and the seemingly rigid experience - camera is fixed and coupled with a flight tracker via picture-in-picture feature. The exact setup of the flight tracker is not entirely clear to me. Suffice to believe that there could be an ADS-B augmentation of the local data. The markers on the pic-in-pic display are typically much more active with "objects" than a side-by-side flightaware, FR24 and other comparative tools. There are  many inexplicable "objects" being orchestrated into deliberate patterns/constellations. This is the current focus.
+
+Having seen Spielberg's "mastermind-level" movies, have to admit, it's feeling very unworldly. Read comment that there could be "planting" of such ideas. Hmmm, really really hard to know.
+
+After just a short while considering the focus question, have a feeling that Polaris is strongly involved in this mystery. One of the most distint "orb" plots seem to be going in this direction. Just a thought ;)
 
 ### tracker image searches
+Following are a series of screen captures from recent few days. Need to be more scientific about this but comppelled to get something out to chew on. Simple github markdown convention of a horizontal line (`***`) for separations of separately taken screenshots of the pic-in-pic from the YT stream.
+
 ![image](https://github.com/user-attachments/assets/3fb04a5a-0728-410e-bc43-f6a286f1fc4c)
 
 https://images.app.goo.gl/kpvjuGkrHmtuuPsq9
