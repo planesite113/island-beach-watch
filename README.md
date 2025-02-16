@@ -43,7 +43,15 @@ https://www.britannica.com/topic/flag-of-Alaska
 ***
 ![image](https://github.com/user-attachments/assets/c016b74e-1036-4320-9452-265d471c1bb4)
 ***
+Link to last nights stream. It was foggy and the operator shut it down to give it a rest around 9:30PM. An isolation of the tracker portion of the screen and time compression is being established. Appears to be a clear representation of ursa major between 7:00PM and 7:20PM. Possible we are being shown a voyage through space? A superimposed ET star tacker - intentional humor?
 
+https://www.youtube.com/live/3IMti3kLlPc?si=dvBc_kG3hklAXlss
+
+Isolated flight tracker and limited to about 3 hours (realtime) between 6 and 9PM. Edited this result and recaptured at 16X in addition to the 2X playback speed that was set.
+https://youtu.be/GQnNgu1rRBM
+
+Posted video and would like to invite comment. Personal interpretation is suspect. There is a strong overall level of orchestration demonstrated in this capture.
+***
 
 
 
