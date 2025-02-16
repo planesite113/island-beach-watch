@@ -8,7 +8,7 @@ A potentially important observation is the focus of this repository. Could we be
 
 Having seen Spielberg's "mastermind-level" movies, have to admit, it's feeling very unworldly. Read comment that there could be "planting" of such ideas. Hmmm, really really hard to know.
 
-After just a short while considering the focus question, have a feeling that Polaris is strongly involved in this mystery. One of the most distint "orb" plots seem to be going in this direction. Just a thought ;)
+After just a short while considering the focus question, have a feeling that Polaris is strongly involved in this mystery. One of the most distinct "orb" plots seem to be going in this direction. Just a thought ;)
 
 ### tracker image searches
 Following are a series of screen captures from recent few days. Need to be more scientific about this but comppelled to get something out to chew on. Simple github markdown convention of a horizontal line (`***`) for separations of separately taken screenshots of the pic-in-pic from the YT stream.
